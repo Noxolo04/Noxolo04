@@ -1,4 +1,4 @@
- 👋 Hello, I'm Tasmiyah Noxolo Simelane
+ 👋 Hello, I'm Noxolo Simelane
 
 🎓 Aspiring Software Developer | WeThinkCode_ Bootcamp Candidate  
 🌍 Based in Johannesburg, South Africa  
